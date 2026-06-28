@@ -1,4 +1,4 @@
-# 
+# Gratuito Inkscape plugins para Mac OS | Seguro Inkscape plugins para PC Windows. Com modelos de design e sumário — otimizado para máximo desempenho em cada plataforma.
 
 
 
